@@ -8,7 +8,7 @@ Meu nome é Bruno Henrique
 
 ### Você pode entrar em contato comigo 📫
 
-cortanaboardvlogs@gamil.com
+cortanaboardvlogs@gmail.com
 
 @bunnuhh
 
